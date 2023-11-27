@@ -6,8 +6,8 @@
 
 ## Contact info
 
-- **Email:** dejanteofilovic2@gmail.com
-- **Discord:** [dejan_teofilovic](https://discord.gg/PztT2r5U)
+- **Email:** robertmichaelhooks@gmail.com
+- **Discord:** [hooks_robert_michael]
 
 - **Discord** [OpenThink#5316](https://discord.gg/TtS7mtuD)
 

@@ -7,9 +7,6 @@
 ## Contact info
 
 - **Email:** robertmichaelhooks@gmail.com
-- **Discord:** [hooks_robert_michael]
-
-- **Discord** [OpenThink#5316](https://discord.gg/TtS7mtuD)
 
 ## Release date
 
